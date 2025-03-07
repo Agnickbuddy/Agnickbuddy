@@ -4,6 +4,7 @@
 🌍 **From:** India  
 
 ---
+![twitter-motivational-banner-10-1024x341](https://github.com/user-attachments/assets/33cb9b14-601f-44a5-a385-4b41e8302a36)
 
 ## 🏆 About Me  
 
